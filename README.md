@@ -24,4 +24,4 @@
 真正的日本AV免费体验，不是数量多，而是资源稳定、播放顺畅、体验干净。如果你曾厌倦满屏广告和虚假链接，建议你把本站加入收藏，我们将成为你值得信赖的日本AV在线看平台。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg57687/35015 ）</span>
